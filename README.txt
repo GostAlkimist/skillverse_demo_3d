@@ -1,0 +1,1 @@
+SKILLVERSE 3D Demo - Versión Coherente y Lógica con Detroit OST. Abre index.html en tu navegador.
